@@ -1,4 +1,4 @@
-- 👋 Hi, Trevor Ferris 
+- 👋 Hi, I'm Trevor Ferris 
 - I'm returning to coding after an extended break and am looking to generally improve my skills.
 - I enjoy TTRPGs, cosplay, Magic the Gathering, Gunpla and other model building, and chilling with friends. 
 - You can reach me at my email, Trevor.f@comcast.net 
